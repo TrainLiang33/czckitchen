@@ -25,7 +25,7 @@ The [CZC Kitchen Automatic Stir Fryer ](https://czckitchen.com/product/stir-frye
 ## 🔗 Resources
 
 - [Official Product Page](https://czckitchen.com)
-- [User Manual PDF](https://czckitchen.com/product/stir-fryer/) (Download at bottom of product page)
+- [User Manual PDF](https://czckitchen.com/product-category/automatic-stir-fryer/) (Download at bottom of product page)
 - [Community Forum](https://czckitchen.com/czc-restaurant-equipment-store-reviews/) (See user reviews)
 
 ## � Why Choose This Cooker?
